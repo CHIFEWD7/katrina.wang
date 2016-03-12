@@ -1,2 +1,0 @@
-# katrina.wang
-Katrina Wang
